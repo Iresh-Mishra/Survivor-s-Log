@@ -1,7 +1,7 @@
 # Survivor's Logs:
 
 > --edit--
-
+AB ISS GAURRINT ME KUUCH NHI HAI
 ## Author:
 
 > Tanay Agrawal
